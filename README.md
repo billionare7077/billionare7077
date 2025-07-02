@@ -1,4 +1,4 @@
-# Hi, I'm [Your Name] 👋
+# Hi, I'm 😎 BILLIONARE7077 👋
 
 I am a **Web Developer** with **8 years of experience**, specializing in modern web technologies and AI-driven solutions. Over the years, I've honed my skills in a variety of technologies, including **AI**, **Python**, **React**, **Next.js**, and **AI Automation**.
 
