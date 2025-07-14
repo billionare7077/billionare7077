@@ -1,7 +1,9 @@
-# 🌟 100% Project Success | Workflow Automation Expert | OpenAI & AWS Pro
+# AI Engineer | Gen AI & Workflow Automation| LLM/RAG/OpenAI/AWS Specialist
 
-**Voice & Chat AI | RAG Systems | Real-time Agent Workflows**  
-**7+ Years of Experience | 24/7 Availability | End-to-End Delivery**
+
+**🌟 100% Project Success | Workflow Automation Expert | OpenAI & AWS Pro**  
+**🌟 Voice & Chat AI | RAG Systems | Real-time Agent Workflows**  
+**🌟 7+ Years of Experience | 24/7 Availability | End-to-End Delivery**
 
 ---
 
